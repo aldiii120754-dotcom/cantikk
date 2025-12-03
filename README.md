@@ -1,0 +1,2 @@
+# cantikk
+baru belajar
